@@ -1,4 +1,4 @@
-### Hi I'm Madhumini 👋🏾 👩🏾‍💻
+### Hi I'm Madhumini Gunaratne👋🏾 👩🏾‍💻
 
 I'm a second year undergraduate studying at Sri Lanka Institute of Information Technology. :mortar_board:
 
@@ -9,3 +9,4 @@ My greatest passion for life is to use my knowledge and skills to benefit people
 
 ## Find me around the web 🌎: 
 - Sharing updates on <a href="www.linkedin.com/in/madhuminigunaratnekdy/">LinkedIn</a> 💼
+- Drop me an email <a href="madhuminipgunaratne@gmail.com/">Email</a> 📧
