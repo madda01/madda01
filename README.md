@@ -9,4 +9,4 @@ My greatest passion for life is to use my knowledge and skills to benefit people
 
 ## Find me around the web 🌎: 
 - Sharing updates on <a href="www.linkedin.com/in/madhuminigunaratnekdy/">LinkedIn</a> 💼
-- Drop me an email <a href="madhuminipgunaratne@gmail.com/">Email</a> 📧
+- Drop me an email : madhuminipgunaratne@gmail.com 📧
