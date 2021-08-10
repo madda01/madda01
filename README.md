@@ -6,5 +6,5 @@ I am a highly organized person with a passion for Information Technology. :infor
 I have excellent communication skills and strong technical skills. I am an energetic and ambitious person, and I take a responsible attitude towards any task I undertake. 🤓
 My greatest passion for life is to use my knowledge and skills to benefit people and make the world a better place. :gift_heart:
 
-Find me on Linkedln <a href="https://icons8.com/icon/Uj9DyJeLazL6/linkedin">LinkedIn icon by Icons8</a>
+Find me on Linkedln 	:point_right:
 https://www.linkedin.com/in/madhuminigunaratnekdy
