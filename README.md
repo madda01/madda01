@@ -6,4 +6,4 @@ I am a highly organized person with a passion for Information Technology. :infor
 
 
 Find me on Linkedln 	:point_right:
-https://www.linkedin.com/in/madhuminigunaratnekdy
+www.linkedin.com/in/madhumini-gunaratne
