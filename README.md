@@ -1,4 +1,4 @@
-### Hi I'm Madhumini Gunaratne👋🏾 👩🏾‍💻
+### Hi I'm Madhumini Gunaratne 👋🏾 👩🏾‍💻
 
 I'm a second year undergraduate studying at Sri Lanka Institute of Information Technology. :mortar_board:
 
