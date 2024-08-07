@@ -1,5 +1,5 @@
 ### Ola 	😎
-<h3 align="left">Final Year Software Engineering Undergrad</h3>
+<h3 align="left">Research Assistant at SLIIT </h3>
 
 
 
