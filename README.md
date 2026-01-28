@@ -1,5 +1,5 @@
 ### Ola 	😎
-<h3 align="left">Research Assistant at SLIIT </h3>
+<h3 align="left"> Grad Student at UDub </h3>
 
 
 
